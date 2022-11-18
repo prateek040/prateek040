@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @prateek040
 - 👀 I’m interested in gaining experience & knowladge
 - 🌱 I’m currently learning how things work 
-- 💞️ I’m looking to collaborate on any platform
+- 💞️ I’m looking to collaborate on what you prefer
 - 📫 How to reach me -by email prateekmarathe04@gmail.com
 
 <!---
